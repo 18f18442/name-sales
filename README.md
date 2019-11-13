@@ -1,2 +1,1 @@
-
-discount offer 15% for all customers
+discount offer 20%
